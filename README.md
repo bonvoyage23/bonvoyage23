@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @bonvoyage23
+-Kızağanı saldım bonbon alma. Ben evde kaldım..
